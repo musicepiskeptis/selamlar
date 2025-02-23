@@ -11,6 +11,7 @@
 
 🎁PARİBAHİS 1️⃣0️⃣0️⃣ TL BONUS
 ➡️https://paribahis.nasjsrgib.com/tr/casino?partner=p4325p20607p48b1#registration
+![68747470733a2f2f692e6962622e636f2f42744d686866362f672d76656e6c6967697269732e6a7067](https://github.com/user-attachments/assets/45e8ae08-2c39-4b4a-91ef-3e284c0970cd)
 
 🎁ROKUBET 1️⃣3️⃣0️⃣ TL BONUS
 ➡️https://aff.naoxzsw.com//tr/sign-up?partner=p50184p51577p994e
